@@ -12,6 +12,3 @@ i study in Netology
 
 
 
-
-get_understand_this_shirt
-the new 
